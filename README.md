@@ -1,2 +1,2 @@
 # Digital-poster
-plant smarter live better
+plant smarter live better.................
